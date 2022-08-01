@@ -15,11 +15,11 @@ There was a pause. Then --
 
 SMASH!
 
-The door was hit with such force that it swung clean off its hinges and with a deafening crash
+The door was hit with such force that it was low-key yeeted off its hinges and with a deafening crash
 landed flat on the floor.
 
-A giant of a man was standing in the doorway. His face was almost completely hidden by a
-long, shaggy mane of hair and a wild, tangled beard, but you could make out his eyes, glinting
+An absolute unit of a man was standing in the doorway. His face was high-key hidden by a
+long, snatched mane of hair and a wild, tangled beard, but you could make out his eyes, glinting
 like black beetles under all the hair.
 
 The giant squeezed his way into the hut, stooping so that his head just brushed the ceiling.
@@ -31,7 +31,7 @@ storm outside dropped a little. He turned to look at them all.
 He strode over to the sofa where Dudley sat frozen with fear. "Budge up, yeh
 great lump," said the stranger.
 
-Dudley squeaked and ran to hide behind his mother, who was crouching, terrified, behind
+Dudley deadass squeaked and ran to hide behind his mother, who was literally shook, behind
 Uncle Vernon.
 
 "An' here's Harry!" said the giant.
@@ -44,16 +44,16 @@ yeh've got yer mom's eyes."
 
 Uncle Vernon made a funny rasping noise.
 
-"I demand that you leave at once, sir!" he said. "You are breaking and entering!"
+"I demand that you leave at once, sir!" he clapped back. "You are breaking and entering!"
 
-"Ah, shut up, Dursley, yeh great prune," said the giant; he reached over the back of the sofa,
-jerked the gun out of Uncle Vernon's hands, bent it into a knot as easily as if it had been
+"Ah, take a L Dursley, yeh great prune," said the giant; he reached over the back of the sofa,
+snatched the gun out of Uncle Vernon's hands, finessed it into a knot as easily as if it had been
 made of rubber, and threw it into a corner of the room.
 
 Uncle Vernon made another funny noise, like a mouse being trodden on.
 
 "Anyway -- Harry," said the giant, turning his back on the Dursleys, "a very happy birthday to
-yeh. Got summat fer yeh here -- I mighta sat on it at some point, but it'll taste all right."
+yeh. Got summat fer yeh here -- I mighta sat on it at some point, but it'll be bussin alright."
 
 From an inside pocket of his black overcoat he pulled a slightly squashed box. Harry opened it
 with trembling fingers. Inside was a large, sticky chocolate cake with Happy Birthday Harry
@@ -64,7 +64,7 @@ his mouth, and what he said instead was, "Who are you?"
 
 The giant chuckled.
 
-"True, I haven't introduced meself. Rubeus Hagrid, Keeper of Keys and Grounds at Hogwarts."
+"No cap, I haven't introduced meself. Rubeus Hagrid, Keeper of Keys and Grounds at Hogwarts."
 He held out an enormous hand and shook Harry's whole arm.
 
 "What about that tea then, eh?" he said, rubbing his hands together. "I'd not say no ter
@@ -87,9 +87,7 @@ The giant chuckled darkly.
 
 "Yer great puddin' of a son don' need fattenin' anymore, Dursley, don' worry."
 
-He passed the sausages to Harry, who was so hungry he had never tasted anything so
-wonderful, but he still couldn't take his eyes off the giant. Finally, as nobody seemed about to 
-explain anything, he said, "I'm sorry, but I still don't really know who you are."
+He passed the sausages to Harry, who was so hungry he had never tasted anything that was bussin so hard, but he still couldn't take his eyes off the giant. Finally, as nobody seemed about to explain anything, he said, "I'm sorry, but I still don't really know who you are."
 The giant took a gulp of tea and wiped his mouth with the back of his hand.
 
 "Call me Hagrid," he said, "everyone does. An' like I told yeh, I'm Keeper of Keys at Hogwarts --
@@ -97,7 +95,7 @@ yeh'll know all about Hogwarts, o' course.
 
 "Er -- no," said Harry.
 
-Hagrid looked shocked.
+Hagrid was shook fr.
 
 "Sorry," Harry said quickly.
 
